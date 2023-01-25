@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil da Ana Luiza ♡
+## Bem-vindo(a) ao perfil da Ana Luiza 💖
 
  <div>
    <a href="https://github.com/luizaalcm">
