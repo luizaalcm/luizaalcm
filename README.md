@@ -1,4 +1,4 @@
-## Bem-vindo(a) 💗
+## Bem-vindo(a)!
 
  <div>
    <a href="https://github.com/luizaalcm">
